@@ -1,5 +1,5 @@
 # Соболева Светлана Владимировна
-![MwIdNiePyZk — копия](https://github.com/SobolevaSV/my-pages/assets/138288387/3c266b9a-73b2-4440-bd4f-fc1dd270f498)
+![MwIdNiePyZ](https://github.com/SobolevaSV/my-pages/assets/138288387/7e8395b7-afda-4d6c-b278-87e1591ef603)
 
 Я хочу сменить сферу деятельности, поэтому учусь на тестировщика.
 
